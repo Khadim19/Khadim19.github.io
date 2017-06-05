@@ -1,1 +1,0 @@
-# Khadim-s-Curriculum1
