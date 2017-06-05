@@ -1,2 +1,0 @@
-# gueye
-programmation homework
